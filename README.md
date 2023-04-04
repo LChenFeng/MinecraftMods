@@ -15,5 +15,5 @@
 ![宛龙](https://i.328888.xyz/2023/04/04/ij71aL.th.jpeg)  
 目前只能熄灭火焰。
 ## 合成表
-- ![龙鳞粉-龙鳞](https://i.328888.xyz/2023/04/04/ijpiAa.jpeg)  
-- ![龙鳞粉-宛龙](https://i.328888.xyz/2023/04/04/ijmuJw.jpeg)
+![龙鳞粉-龙鳞](https://i.328888.xyz/2023/04/04/ijpiAa.jpeg)  
+![龙鳞粉-宛龙](https://i.328888.xyz/2023/04/04/ijmuJw.jpeg)
